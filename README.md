@@ -1,4 +1,4 @@
-### Hi, Ciao, Hallo, Salut, Ola! Eu sou o Douglas Liandi. 
+### Ciao, Io sono Douglas Liandi. 
 
 
 
