@@ -4,7 +4,7 @@
 
 - 🔭 Atualmente trabalhando com analise de testes de software
 - 🌱 Estou estudando front-end 
-- 😄 Pronouns: ele/dele
+
 
 ##
 
